@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vovkanastasia31
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...52
+- 💞️ I’m looking to collaborate on ...52hyt
 - 📫 How to reach me ...423
 - 111475574
 
