@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vovkanastasia31kt yu
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...52hyt
+- 💞️ I’m looking to collaborate on ...52hytryuk
 - 📫 How to reach me ...423xk78t
 - 111475574,chjha weffyuk
  h45 54e tyue
