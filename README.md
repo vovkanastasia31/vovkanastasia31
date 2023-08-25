@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...52hytryuk kyfu
 - 📫 How to reach me ...423xk78t werguoi;
-- 111475574,chjha weffyuk
+- 111475574,chjha weffyuk hwrt
  h45 54e tyue
 <!---yrethrthr
 vovkanastasia31/vovkanastasia31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
