@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...52hytryuk kyfu feerf
-- 📫 How to reach me ...423xk78t werguoi;
+- 📫 How to reach me ...423xk78t werguoi; jstrj jt
 - 111475574,chjha weffyuk hwrt
  h45 54e tyuew
 <!---yrethrthr
